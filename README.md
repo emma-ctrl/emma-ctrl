@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hi my name is Emma 👋
+
+Learning and building things at the same time :)
+
+Connect with me here ✨ -> https://www.linkedin.com/in/emma-rattray-bb026b143/
 
 <!--
 **emma-ctrl/emma-ctrl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
