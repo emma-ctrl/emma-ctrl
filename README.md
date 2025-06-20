@@ -1,6 +1,6 @@
 ## Hi my name is Emma 👋
 
-Learning and building things at the same time :)
+Learning and building :)
 
 Connect with me here ✨ -> https://www.linkedin.com/in/emma-rattray-bb026b143/
 
